@@ -1,2 +1,5 @@
-# saftaldesign.com
-International web design agency — custom websites delivered in 3-7 days. Dubai, UK, Thailand, Switzerland and more.
+# Saftal Design                                                                                     
+                                                                                                      
+  International web design agency delivering custom, hand-coded websites in 3-7 days.                 
+                  
+  🌐 [saftaldesign.com](https://saftaldesign.com/en/)
